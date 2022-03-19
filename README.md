@@ -1,0 +1,2 @@
+# Chandamama-Magazine
+Chandamama was a classic Indian monthly magazine for children, famous for its illustrations. It also published long-running mythological/magical stories that ran for years. Originally, "Chandamama" was started in Telugu by B.Nagi Reddy and Chakrapani, noted Telugu Film makers. It was edited by Kodavatiganti Kutumba Rao, a very close friend of Chakrapani and a literary colossus in Telugu Literature. Chandamama, the magazine that taught generations about ethics and India for six decades.
